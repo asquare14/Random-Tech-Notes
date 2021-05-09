@@ -1,0 +1,3 @@
+- https://member.ipmu.jp/yuji.tachikawa/MenuMetersElCapitan/
+- [VPN tunnel bear](https://www.tunnelbear.com/b/vpn-yearly?utm_source=google&utm_medium=cpc&utm_campaign=2020%20-%20IN%20-%20Search%20-%20Brand%20-%20SKAG%20%28Test%29&campaignid=10382361118&feeditemid=&adgroupid=104062961515&keyword=tunnel%20bear&matchtype=e&creative=444399801062&adposition=&ref_id=mkt_adwords&gclid=CjwKCAjwkN6EBhBNEiwADVfya-ztEzHjDArJ_UxonXA-9EywHP8b2aGDLKYHfFkKnlYyIdn4kCUZ-hoCJAIQAvD_BwE)
+- [Macs Fan Control](https://crystalidea.com/macs-fan-control)
